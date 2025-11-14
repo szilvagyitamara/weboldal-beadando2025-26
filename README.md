@@ -1,0 +1,1 @@
+# weboldal-beadando2025-26
